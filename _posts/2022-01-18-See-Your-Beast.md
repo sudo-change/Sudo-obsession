@@ -8,7 +8,7 @@ title: See Your Beast
 
  >you will only see your beast only if you really really want to
 
-why against me , we can be friends. embrace me my friend i will be with you
+why against me, embrace me my friend i will be with you
 
 
 iam Cold, embrace me my friend i will take You to places that you never been        
