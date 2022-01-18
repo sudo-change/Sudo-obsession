@@ -6,7 +6,7 @@ title: See Your Beast
 
 ### See Your Beast
 
- >you will only see your beast only if you really really want to
+> Warning: you will only see your beast only if you really really want to
 
 why against me, embrace me my friend i will be with you
 
