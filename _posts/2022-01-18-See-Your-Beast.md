@@ -1,6 +1,5 @@
 ---
 layout: post
-categories: [markdown]
 title: See Your Beast
 ---
 
